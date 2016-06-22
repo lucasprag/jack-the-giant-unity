@@ -1,0 +1,17 @@
+Thank you for downloading this font!
+
+This freeware font is the property of Robert Borenic.  © 2010. All rights reserved.
+
+This font may be used for any commercial and non-commercial use.  
+Feel free to pass it along, but please include this document.
+I also ask that you send me an email to let me know what you think of it and where you got it (just so I know where it is floating around).  I would very much appreciate it.
+
+Robert Boreniæ is not liable for any damages or loss, including, but not limited to, damages from loss of business profit, business interruption, and loss of business information, due to the use of this product, or inability to use this product.  This font is a Freeware product and not intended for sale.  By installing this font, you have agreed to the above terms. 
+
+Thanks again and keep creating!!
+
+Robert
+
+email: robert@dvoklik.hr
+
+http://www.1001fonts.com/homoarakhn-font.html#more

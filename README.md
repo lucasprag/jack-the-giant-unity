@@ -14,6 +14,6 @@ Clone the repo
 git clone git@github.com:Lucasosf/jack-the-giant-unity.git
 ```
 
-Open the project with the Unity and hit the play button.
+Open the project with Unity and hit the play button.
 
 Thanks
